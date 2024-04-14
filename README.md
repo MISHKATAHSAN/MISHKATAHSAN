@@ -8,4 +8,4 @@ MISHKAT AHSAN
 
 .
 
-📫 Feel free to reach out to me via email at mdmishkatahsan02@gmail.com or connect with me on https://www.linkedin.com/in/mishkat-ahsan-7b0509224/
+📫 Feel free to reach out to me via email at mdmishkatahsan02@gmail.com or connect with me on LinkedIn https://www.linkedin.com/in/mishkat-ahsan-7b0509224/
