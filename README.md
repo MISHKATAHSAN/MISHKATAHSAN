@@ -6,7 +6,7 @@ MISHKAT AHSAN
 
 💼 As a fresher in the field, I'm eager to apply my knowledge and skills to contribute to exciting projects and collaborate with like-minded professionals. I'm particularly interested in opportunities where I can continue to learn and grow while making a meaningful impact.
 
-.
 
 📫 Feel free to reach out to me via email at mdmishkatahsan02@gmail.com or 
+
 connect with me on LinkedIn https://www.linkedin.com/in/mishkat-ahsan-7b0509224/
